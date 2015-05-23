@@ -1,4 +1,4 @@
-# Spinach Tart
+# Panna cotta (cooked cream)
 
 ### Ingredients
 
